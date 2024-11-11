@@ -1,3 +1,4 @@
+#Abdulqudushamza
 # PROFILE		
 + To Secure a position in data analysis or statistical research where I can apply my skills and Knowledge to drive informed decision making
 + Experienced and versatile Graphic Designer with a proven track record in various design roles
